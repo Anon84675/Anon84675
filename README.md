@@ -1,5 +1,5 @@
 ## 💫 About Me:
-Hi, I'm Gidy👋<br>💬 Ask me all about WideWeb Tech!<br>📫 How to reach me: gitaugideon56@gmail.com<br>⚡ Fun fact: GGMU🎉
+Hi, I'm Gidy👋<br>⚡ Fun fact: GGMU🎉
 
 
 ## 🌐 Socials:
